@@ -22,4 +22,12 @@ Content Torque builds content that compounds. The kind that's still bringing you
 
 ## Who We Work With
 
-B2B SaaS and tech companies tired of paying for content that does absolutely nothing.
+B2B SaaS and tech companies tired of paying for content that does absolutely nothing. If you've ever looked at your organic traffic and felt personally attacked, we should talk.
+
+---
+
+## Let's Fix Your Organic Growth
+
+🌐 [contenttorque.com](https://contenttorque.com)
+
+📍 Ahmedabad, India
